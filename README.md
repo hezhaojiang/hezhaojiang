@@ -1,4 +1,4 @@
-### 👋 Hi there , I'm [HeZzero](https://hezhaojiang.github.io/) 
+### 👋 Hi there , I'm [HeZenJa](https://hezhaojiang.github.io/) 
 
 ![visitor](https://visitor-badge.glitch.me/badge?page_id=hezhaojiang.readme)
 
